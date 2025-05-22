@@ -3,4 +3,4 @@ tenho 16 anos e sou bem carismatico
 
 
 
-https://tenor.com/pt-BR/view/spamton-delta-rune-the-mathew-flames-dancing-gif-23361878
+https://tenor.com/bKbEE.gif
